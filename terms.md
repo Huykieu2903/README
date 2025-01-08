@@ -18,4 +18,4 @@ Please refer to our Privacy Policy for details about data collection.
 We reserve the right to modify these terms at any time.
 
 ## 6. Contact
-For any questions, contact us at sodiumart or https://discord.gg/uPvG7gBqbn.
+For any questions, contact us at kgiahuy790@outlook.com or sodiumart on Discord
