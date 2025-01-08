@@ -23,4 +23,4 @@ We implement measures to secure stored data.
 We may update this Privacy Policy. We will notify users of major changes.
 
 ## 7. Contact
-For questions, contact [Your Email or Discord Handle].
+For questions, contact kgiahuy790@outlook.com or sodiumart on Discord
